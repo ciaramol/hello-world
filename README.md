@@ -1,2 +1,3 @@
 # hello-world
-hello world used to be funny but it's getting real old now
+
+before i am human i am a katy perry stan
